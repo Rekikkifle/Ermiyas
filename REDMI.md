@@ -1,0 +1,1 @@
+doesn't write any note you tech me now tommorow i forgate but if i finish this project i write deeply
